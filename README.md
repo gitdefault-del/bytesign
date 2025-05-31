@@ -9,4 +9,4 @@
   
   动态更新xmedusa 
 
-  please concact tg @signEncre
+  please concact tg @signEncrpt
